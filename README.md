@@ -1,2 +1,2 @@
-# INTERN
+# INTERNSHIP
 
